@@ -1,5 +1,5 @@
 # 💫 About Me:
-Hello everyone, my name is Ngan and I'm 24 years old. I am studying Information Technology at Ho Chi Minh University of Science and I'm currently living in HCMC, Vietnam. I welcome all accompany and opportunities available. You can connect me with the below contacts. Thank you, guys.<br>
+Hello everyone, my name is Ngan and I'm 24 years old. I am studying Information Technology at Ho Chi Minh University of Science and I'm currently living in HCMC, Vietnam. I welcome all accompany and opportunities available. You can connect me with the below contacts. Thank you, guys.<br>
 
 
 ## 🌐 Socials:
